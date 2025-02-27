@@ -1,1 +1,0 @@
-![[Pasted image 20250204104806.png]]mdp user : root
